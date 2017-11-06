@@ -1,2 +1,2 @@
 # hello-world
-Can I learn this? I mean, really?
+I CAN learn this shit! Look at me go! When can I have a job??
